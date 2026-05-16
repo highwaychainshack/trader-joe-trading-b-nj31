@@ -1,4 +1,4 @@
-# 
+# trader joe trading bot vip Automation | transaction-batching & slippage-control offers the most advanced trader joe trading bot, with transaction-batching and slippage-control.
 
 
 
